@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **tomascarrascobattauz@gmail.com**
 
-- ⚡ Fun fact :- If the life give you lemons, do lemonade🍋.
-
 <br>
 
 <h3 align="left">Connect with me:</h3>
